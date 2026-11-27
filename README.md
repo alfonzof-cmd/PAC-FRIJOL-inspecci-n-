@@ -1,1 +1,1 @@
-# PAC-FRIJOL-inspecci-n-
+# PAC-FRIJOL-inspeccion
